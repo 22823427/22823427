@@ -5,4 +5,9 @@
    - apredendo um pouco de pregramaca
   - mas meu sonho e estudar direito
 
-![a procura de justica](bh187-justice-league-batman-mood-brood-gif-14855600461153137116)
+![a procura de justica](https://media.tenor.com/zimx6TwpcdwAAAAM/bh187-justice-league.gif)
+
+Como eu me sinto nas aulas de tecnologia:
+
+
+![aulas](https://media.tenor.com/XsFYCdV_mfQAAAAM/cat-annoyed.gif)
